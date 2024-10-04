@@ -1,0 +1,22 @@
+.
+.
+.
+.
+.
+.
+.
+.
+..............I DO NOT CLAIM OWNERSHIP OF ANY CONTENT IN THIS MATERIAL,..............................
+
+..............NOR DO I VERIFY THE ACCURACY OF THE INFORMATION PROVIDED...............................
+
+..............THIS IS SIMPLY STUDY MATERIAL GIVEN BY OUR COLLEGE FACULTY...............................
+
+..............FOR ANY ERRORS OR DISCREPANCIES, PLEASE CONSULT THE SUBJECT TEACHER DIRECTLY FOR CLARIFICATION OR QUESTIONS.................
+.
+.
+.
+.
+.
+
+AND YES I WILL KEEP UPDATING THIS REPO SO MARK THIS .......
